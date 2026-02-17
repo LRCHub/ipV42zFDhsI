@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "Success Thru The M.I.C",
+  "base_artist": "LGYankees",
+  "createdAt": "2026-02-17T07:15:57.423926Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "Success Thru The M.I.C",
+      "artist": "LGYankees",
+      "has_synced": false,
+      "path": "select/pl_01_Success_Thru_The_M.I.C_LGYankees.txt"
+    }
+  ]
+}
