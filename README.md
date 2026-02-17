@@ -1,0 +1,80 @@
+# LGYankees – Success Thru The M.I.C
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+(HIRO)
+Check The King これが LG
+転がす Big Car And Big Rim
+響かすこの全街中に Nice Music Every Body Movin'
+North East 022 中心 こっから発信全土 Cruising
+でっけえ反応が俺等のバネ
+ハイオク満タンさまだ止まらねー
+高い壁も越えりゃ絶景
+さぁ一緒に見るか行くぜ Say Yeah Say Ho
+さぁ上がってくぞ この瞬間皆と結合
+ディギディギ○△□× いちいちかまってらんねーよ
+Let's Go(Let's Go)Hey Yo(Hey Yo)
+Check The Peace これが LG Show
+LGYankees Dancing Dancing
+Oh Oh My God North East Champion
+You & You Lock やるぜ Happy
+Oh Oh My People 一緒 Jumping
+LGYankees Dancing Dancing
+Oh Oh My God North East Champion
+You & You Lock やるぜ Happy
+Oh Oh My People Every Body Jump
+(RYO)
+特攻一番機 NDT 代表 喰らわす Mic Come on
+付いて来るか食うか食われるか
+殺るか殺られるかはテメー次第 On
+独自思考回路装備 俺が分析解読不能な RYO だ
+My Hood Area 022 目標地点日本全土に
+特殊武装部隊降下中 切り開く Survival 突破中
+準備はいいか?
+背後から援護続け後には引けねー最後
+Pride と意地と Brand は LG
+巻き起こす見てろよやらかすぞ
+産地直送届けるヤバ僧
+Made In LG マジでとろけるぞ
+LGYankees Dancing Dancing
+Oh Oh My God North East Champion
+You & You Lock やるぜ Happy
+Oh Oh My People 一緒 Jumping
+LGYankees Dancing Dancing
+Oh Oh My God North East Champion
+You & You Lock やるぜ Happy
+Oh Oh My People Every Body Jump
+(HIRO)
+No LG No Life No Limit No Sleeping で
+Action Three Peace
+行動してなんぼな現状なら
+寝てらんねーぜ勝つための Game
+No LG No Life No Limit
+寝てられっかって正直 No Doubt
+All Night Long 日が昇るまで
+俺等歌うぜ満たされるまで
+(RYO)
+この一本に賭けた一歩 この日本変えてやるよきっと
+ここ North East Area 雲源地震えさせる発信地
+Media から Mass Media
+伝わる合間くぐり抜ける隙間
+狙った獲物を仕留める
+Hunter その耳かっぽじって聞け Listener
+LGYankees Dancing Dancing
+Oh Oh My God North East Champion
+You & You Lock やるぜ Happy
+Oh Oh My People 一緒 Jumping
+LGYankees Dancing Dancing
+Oh Oh My God North East Champion
+You & You Lock やるぜ Happy
+Oh Oh My People Every Body Jump
+LGYankees Dancing Dancing
+Oh Oh My God North East Champion
+You & You Lock やるぜ Happy
+Oh Oh My People 一緒 Jumping
+LGYankees Dancing Dancing
+Oh Oh My God North East Champion
+You & You Lock やるぜ Happy
+Oh Oh My People Every Body Jump
+```
